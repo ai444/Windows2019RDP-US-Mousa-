@@ -20,3 +20,4 @@ FB: fb.com/thuong.hai.581.
 copyright for translation reserved to Mousa Abu Nassar
 FB: fb.com/mousaa.nassar
 
+الرجاء عدم استعمال الارديبي للتعدين
