@@ -18,3 +18,5 @@ FB: fb.com/thuong.hai.581.
 
 copyright for translation reserved to Mousa Abu Nassar
 FB: fb.com/mousaa.nassar
+
+please don't use RDP for mining
